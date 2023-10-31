@@ -1,5 +1,5 @@
 # iqra2930
-# Halo semua! 
+
 
 Perkenalkan nama saya **Iqra Aulia Syafputra**.
 
