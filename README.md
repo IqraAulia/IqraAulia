@@ -1,4 +1,4 @@
-# iqra
+# my profil
 
 
 Perkenalkan nama saya **Iqra Aulia Syafputra**.
