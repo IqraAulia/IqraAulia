@@ -1,4 +1,4 @@
-# iqra2930
+# iqra
 
 
 Perkenalkan nama saya **Iqra Aulia Syafputra**.
